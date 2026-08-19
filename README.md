@@ -1,5 +1,3 @@
-# Portfolio
-My professional portfolio – Graphic Design, Content Creation ; Audiovisual Production
 # Chaimaa Boulaaguig
 
 ### Community Manager | Content Creator | Graphic Designer | Audiovisual
